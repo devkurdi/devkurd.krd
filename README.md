@@ -1,0 +1,1 @@
+# devkurd.krd
